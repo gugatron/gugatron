@@ -28,8 +28,7 @@ My journey into the world of tech started with pecking at discarded keyboards (d
 
 ## Contact
 
-* **Email:**  (Unfortunately, I don't have a personal email address yet.  Perhaps you could build one for me?)
-* **Twitter:**  (I'm working on setting up a Twitter account... stay tuned!)
+* **Email:**  golubovic.gu@gmail.com
 
 ## Fun Fact
 
